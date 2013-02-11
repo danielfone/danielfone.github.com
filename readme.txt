@@ -1,1 +1,0 @@
-Public website of Daniel Fone
